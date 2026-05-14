@@ -1,16 +1,42 @@
-## Hi there 👋
+# 👋 Hi, I'm Gayathri
 
-<!--
-**GayathriVakati/GayathriVakati** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+🎯 Admission Counsellor | EdTech Sales Specialist
 
-Here are some ideas to get you started:
+💼 3+ years of experience in EdTech & training industry
+📈 40–45% conversion rate in high-ticket programs (₹60K–₹80K)
+🏆 Consistently exceeded revenue targets
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+---
+
+## 🚀 What I Do
+
+* Convert leads into high-value enrollments
+* Handle demo sessions & objection handling
+* Guide working professionals in career decisions
+* Build strong client relationships
+
+---
+
+## 📊 Key Achievements
+
+✔️ 150+ sales/month
+✔️ High revenue generation
+✔️ Top performer recognition
+✔️ Strong CRM & pipeline management
+
+---
+
+## 🛠 Skills
+
+* Consultative Selling
+* Lead Conversion & Closing
+* Negotiation & Objection Handling
+* Client Relationship Management
+
+---
+
+## 📫 Contact
+
+📧 vgayathrijuly2001@gmail.com
+📍 Bengaluru, India
+
